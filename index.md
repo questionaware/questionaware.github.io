@@ -1,6 +1,4 @@
-This is a blog by [@questionaware](https://twitter.com/questionaware). You can include images:
-
-![Image of fast.ai logo](images/logo.png)
+This is a blog by [@questionaware](https://twitter.com/questionaware). 
 
 ## The Boundary Theory of Thought
 
