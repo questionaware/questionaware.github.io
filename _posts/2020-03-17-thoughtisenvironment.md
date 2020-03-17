@@ -12,6 +12,7 @@ The standard view is that there are particular environments or spheres, e.g. twi
 
 Thought is environment. Environment does not trigger thought, and thought does not trigger environment. The moment that environment exists, thoughts exist, the moment that thoughts exist, environment exists. You cannot escape your own perceptions into external things, or attribute your own perceptions to external things. Your own perceptions are those external things, regardless of how your energy is projected inward or outward.
 
+The refined view is that each thing that occurs is everything inside of it. In this view, there isn't even a distinction of thoughts or not thoughts, or a relation of the senses to each other. This may seem like it is impossible to act on or with, because it's impossible to grasp. The reality is this is the natural state that you're acting in all the time, and the only reason that you do not accord with it is because you perceive thoughts that present an alternative dualistic reality to be real and tangible, existent in reality. It's not that perceiving them as unreal will help either, it's just that any thought once it's lost its controlling power will no longer determine your perceptions or actions. This loss of control is the piercing of illusion, it's not about shifting the thoughts one way or another way, it's about fundamentally recognizing their nature and the nature of mind and allowing that to take its own place.
 
 ## Addendum
 
